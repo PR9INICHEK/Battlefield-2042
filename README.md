@@ -21,6 +21,6 @@ https://wiki.bfee.co/BF2042/Phantom_Program
 6. [The next PHANTOM PROGRAM Easter egg step has been solved - DANNYonPC](https://www.youtube.com/watch?v=yc7DNvOYrvI)
 7. [How to get the Phantom Program skins - DANNYonPC](https://www.youtube.com/watch?v=uBaZp9B9TNw)
 8. [We've opened the Phantom Elevator! - Battlefield 2042 - DANNYonPC](https://www.youtube.com/watch?v=NcSiDTIfto8)
-10. []()
-11. []()
+10. [There's a secret hidden room in Iwo Jima - Battlefield 2042 Easter Egg! - Dan™](https://www.youtube.com/watch?v=xAecIHBR3Uk)
+11. [Full Phantom Program Guide So Far - Battlefield 2042 Easter Egg - Dan™](https://www.youtube.com/watch?v=KveM9CH9hi4)
 12. []()

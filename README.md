@@ -20,6 +20,7 @@ https://wiki.bfee.co/BF2042/Phantom_Program
 3. [How to Unlock the Prototype Secret Weapon in Battlefield... - jackfrags](https://www.youtube.com/watch?v=FAl_Uh5wSwI)
 4. [Как получить СЕКРЕТНОЕ ЛЕГЕНДАРНОЕ оружие и ЗАРАБОТАТЬ 50000 опыта за 1 матч в battlefield 2042 - AMBAssador_OG](https://www.youtube.com/watch?v=e3GdvAsJBEM)
 5. [ОТКРЫВАЕМ СЕКРЕТНОЕ ОРУЖИЕ | ПРОТОТИП | ГАЙД | BATTLEFIELD 2042 - Децык](https://www.youtube.com/watch?v=SxlOp2aXzVs)
+6. [ПРОТОТИП ! Новое секретное оружие в Battlefield 2042| Prototyp - Argo_59](https://www.youtube.com/shorts/eTRld-P7VJU)
 
 
 

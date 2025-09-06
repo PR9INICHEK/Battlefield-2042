@@ -9,6 +9,9 @@ https://wiki.bfee.co/BF2042/Phantom_Program
 
 #### Оружие прототип
 1. [Battlefield 2042 Как получить Секретное Оружие ( Prototype / Прототип ) - Shobo](https://www.youtube.com/watch?v=_3M6xE_6tw4)
+2. [КАК ОТКРЫТЬ ПРОТОТИП В BATTLEFIELD 2042 - Preepwalker](https://www.youtube.com/watch?v=8BpR0I0HqEg)
+3. []()
+4. []()
 
 
 
@@ -23,4 +26,8 @@ https://wiki.bfee.co/BF2042/Phantom_Program
 8. [We've opened the Phantom Elevator! - Battlefield 2042 - DANNYonPC](https://www.youtube.com/watch?v=NcSiDTIfto8)
 10. [There's a secret hidden room in Iwo Jima - Battlefield 2042 Easter Egg! - Dan™](https://www.youtube.com/watch?v=xAecIHBR3Uk)
 11. [Full Phantom Program Guide So Far - Battlefield 2042 Easter Egg - Dan™](https://www.youtube.com/watch?v=KveM9CH9hi4)
-12. []()
+12. [Battlefield 2042 Phantom Program Easter Egg NEXT PART SOLVED! - LoganTheBrawler Gaming](https://www.youtube.com/watch?v=vMhxtmXTPZA)
+13. [Battlefield 2042 Phantom Program Easter Egg FULL Guide How to unlock - LoganTheBrawler Gaming](https://www.youtube.com/watch?v=v3efZBZCQ7Y)
+14. []()
+15. []()
+16. []()

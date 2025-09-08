@@ -49,4 +49,5 @@ https://wiki.bfee.co/BF2042/Phantom_Program
 
 # Интересные вещи, о которых можно рассказывать
 1. https://wiki.bfee.co/BF2042/Funny_messages
-2. 
+2. https://wiki.bfee.co/BF2042/QR_Codes
+3. 

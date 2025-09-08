@@ -45,3 +45,8 @@ https://wiki.bfee.co/BF2042/Phantom_Program
 14. []()
 15. []()
 16. []()
+
+
+# Интересные вещи, о которых можно рассказывать
+1. https://wiki.bfee.co/BF2042/Funny_messages
+2. 

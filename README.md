@@ -51,3 +51,10 @@ https://wiki.bfee.co/BF2042/Phantom_Program
 1. https://wiki.bfee.co/BF2042/Funny_messages
 2. https://wiki.bfee.co/BF2042/QR_Codes
 3. 
+
+# Руководства по самолётам или просто интересные видео, из которых можно поучиться
+1. [The Game Caused ATTACK JET NERFS… 129-0 in 24 minutes. | Silk](https://www.youtube.com/watch?v=Wt91GRloakg)
+2. []()
+3. []()
+4. []()
+5. []()
